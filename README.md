@@ -1,0 +1,1 @@
+# pattern-recognition-course-25-26
